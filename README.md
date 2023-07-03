@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ninjatix.github.io/rsschool-cv/
